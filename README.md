@@ -1,5 +1,5 @@
-Jangan lupa hapus session json sebelum scan di termux
+APA? GAK TERIMA?
 
-owner nya ilamg dek 
-REUPLOAD BY ARY GAMZ
-SC ORI KANNA CHANN
+SINI DEK GW KASIH PAHAM
+
+NOTE : CUMAN KANG RECODE JADI SAYA MENGHARGAI PARA KREATOR LAINNYA.
